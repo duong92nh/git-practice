@@ -9,3 +9,7 @@ Quạt nồng ấp lạnh những ai đó giờ?
 Sân Lai cách mấy nắng mưa,
 Có khi gốc tử đã vừa người ôm.
 
+Phong lôi nổi trận bời bời,
+Nặng lòng e ấp tính bài phân chia.
+Quyết ngay biện bạch một bề,
+Dạy cho má phấn lại về lầu xanh!...
