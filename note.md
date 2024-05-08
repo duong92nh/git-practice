@@ -1,10 +1,13 @@
 Tưởng người dưới nguyệt chén đồng
 Tin sương luống những rày trông mai chờ
 Bên trời góc bể bơ vơ
-Tấm son gột rửa bao giờ cho phai.
-Duration: 2 minutes and 40 seconds.2:40
-Một đoạn ngâm thơ từ năm 1931
 
+
+
+Phong lôi nổi trận bời bời,
+Nặng lòng e ấp tính bài phân chia.
+Quyết ngay biện bạch một bề,
+Dạy cho má phấn lại về lầu xanh!...
 
 Phong lôi nổi trận bời bời,
 Nặng lòng e ấp tính bài phân chia.
