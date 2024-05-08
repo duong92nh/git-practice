@@ -13,3 +13,7 @@ Có khi gốc tử đã vừa người ôm.
 
 Than ôi! Sắc nước hương trời,
 Tiếc cho đâu bỗng lạc loài đến đây?...
+
+
+Khi tỉnh rượu, lúc tàn canh,
+Giật mình, mình lại thương mình xót xa…
