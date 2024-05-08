@@ -8,3 +8,8 @@ Xót người tựa cửa hôm mai,
 Quạt nồng ấp lạnh những ai đó giờ?
 Sân Lai cách mấy nắng mưa,
 Có khi gốc tử đã vừa người ôm.
+
+
+
+Than ôi! Sắc nước hương trời,
+Tiếc cho đâu bỗng lạc loài đến đây?...
