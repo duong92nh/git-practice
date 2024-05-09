@@ -13,5 +13,6 @@ Dạy cho má phấn lại về lầu xanh!...
 Phong lôi nổi trận bời bời,
 Nặng lòng e ấp tính bài phân chia.
 Quyết ngay biện bạch một bề,
+Dạy cho má phấn lại về lầu xanh!...  Quyết ngay biện bạch một bề,
 Dạy cho má phấn lại về lầu xanh!...
 
